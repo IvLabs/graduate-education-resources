@@ -72,7 +72,7 @@
 | Eye Glass/ Contact Lens               | 2 pairs            | India     | Eye Glasses are very very expensive here. With Eye Insurance I paid $225 for one eye glass. Same would have cost Rs4,000 in  India. So, if you wearing glasses make sure you get atleast two pairs | 
 
 
-How to Pack Cabin Baggage 
+## How to Pack Cabin Baggage 
 
 Students attending university for Spring 2009 are busy preparing for Air Travel. Here's some tips to  pack your cabin baggage ( carry on bag) -- one you take with you in the flight. Students traveling for  
 
@@ -112,13 +112,13 @@ Airlines allow 8 yo 10 kgs as carry on cabin baggage for international travel. C
 
 If you are travelling in flight for first time, it will be very good experience. Alos, fact that you are  travelling for first time in flight going to U.S. makes the event more special. Stay safe and enjoy your  trip. If you have any thoughts and comments, write a comment below. 
 
-How to Pack Suitcase for U.S. Travel 
+## How to Pack Suitcase for U.S. Travel 
 
 When it used to be 32 kgs per suitcase it was much easier to pack all the needed stuffs. But with  23 kgs in 1 suitcase, we have to be very careful in what we pack and how we pack. Here are few tips  that will be of some help. Students traveling for the first time, will have lots of stuff to carry. But,  staying informed about what to carry and how much to carry will greatly reduce the amount of effort  
 
 and stress on you. 
 
-Travel Suitcase Packing Tips 
+### Travel Suitcase Packing Tips 
 
 1\. Remove all the tags from new dress/clothes. It will weight almost 200 Grams  2. Remove all the card-board boxes. If you feel something are fragile, try to wrap around  your dress materials.  
 
@@ -166,7 +166,7 @@ Following will be the usual baggage allowance in flights to USA. 
 
 -1 Personal Item (Laptop Bag or Purse) 
 
-Things to Buy After Ariving in USA 
+## Things to Buy After Ariving in USA 
 
 You must have seen shopping list with list if items to buy before you come to USA.  There is huge list of items to buy after you come to USA.  
 
@@ -236,7 +236,7 @@ Electronics 
 
 -HP Envy 4t-1030us Ultrabook- Review 
 
-5 Tips to Pack Suitcase 
+### 5 Tips to Pack Suitcase 
 
 1.Remove the tags from new dress/clothes.  
 
@@ -250,7 +250,7 @@ Electronics 
 
 Check the Fall 2011 -- Travel Tips (it will be still useful for others) 
 
-How to Weigh Suitcase 
+## How to Weigh Suitcase 
 
 Different ways to weigh the suitcase. Make sure you get the weight right. 1.Regular weighing machine -- You weigh yourself first, then weigh again with the  suitcase. Subtract and find the suitcase weight.  
 
@@ -260,7 +260,7 @@ Different ways to weigh the suitcase. Make sure you get the weight right. 1.Regu
 
 Last time my hanging weighing scale messed up the weight. I had 23 kgs and while at airport during  check-in, scales showed 24.5 kgs. Always, we have a cover filled with least priority items that can be removed if the weight is more than the limit.  
 
-5 More Suitcase Packing Tips 
+### 5 More Suitcase Packing Tips 
 
 1.Tie a colorful ribbon on the suitcase handle. Makes it easy to identify your suitcase in  the baggage claim area. I tie 2 different color ribbons.  
 
