@@ -532,7 +532,9 @@ I had posted answers to same question few years back 
 
 -One set of dress/clothes with you in cabin bag  
 
--I took International Driving permit, but never used it (and don't recommend that) Things to Leave Back 
+-I took International Driving permit, but never used it (and don't recommend that)
+
+## Things to Leave Back 
 
 -Leave photocopies of your documents at home  
 
@@ -598,9 +600,7 @@ Lets dive the documents into 2 categories 
 
 ## -Required Documents  
 
--Other Documents 
-
-Mandatory Documents 
+### Mandatory Documents 
 
 -I-20  
 
@@ -630,7 +630,9 @@ Other Documents 
 
 -university transcripts  
 
--Any other documents, like certifications, paper presentation reports, .. How to Take care of your documents 
+-Any other documents, like certifications, paper presentation reports, .. 
+
+## How to Take care of your documents 
 
 -Carry all the documents in with you in the carry on baggage (one you take with you) -Leave copies of your documents at home ( passport, USA Visa, I-20, transcripts, passport  size photos,..)  
 
@@ -643,3 +645,353 @@ Other Documents 
 At some universities, you will be asked to show the original Mark Sheets after completing orientation. Extra copies of Recommendation letters and transcripts (signed and sealed) will be required of you  want to apply for new set of schools. 
 
 It will be huge hassle for you to get recommend
+
+It will be huge hassle for you to get recommendation letters from India while you are in  USA. So, get few extra copies before you leave India.
+
+## 15 Last Minute Flight Travel Tips to USA 
+
+Here are few last minute flight travel tips for students ( and others) flying to US for first time. Read 25  Travel Tips to USA before reading this blog post. 
+
+1\. Don't forget to register for Frequent Flyer Miles.  
+
+2\. Did you make arrangements for accommodation and pickup from airport?  
+
+3\. Do you have dollar bills ($1, $5 or $10) to make phone calls and rent trolley at airport?
+
+4. Phone numbers of person going to pick you from the airport.  
+
+5\. Give those US contact numbers to your parents (or relatives). [ 10 Things to Do After  Landing in USA]  
+
+6\. If possible buy a calling card that can be used to while on transit and in USA. 
+
+7\. If your flight gets delayed, do inform pickup person about the delay.  
+
+8\. If you are not sure about anything, ASK for HELP. 
+
+9\. While in airports, keep an eye on your carry on bags.  
+
+10\. Take the bags with you when you go to restroom.  
+
+11.Get mentally prepared to use Tissue Paper in Restroom.  
+
+12\. Soiled Tissue paper goes into Toilet Pot, not into trash can.  
+
+13\. Know what to expect during the travel.  
+
+14\. Call the airline 3 to 4 days before the flight to check your meal preferences. 
+
+ 15. If you arrive at US during mid-day, don't go to bed right away. Force yourself to stay  awake till 8 to 9 PM.  
+
+About Frequent Flyer Miles -- For example If you are flying in Jet Airways, register for their Jet  Privilege Account before you travel. Provide the Frequent Flyer number to agent who issues your  boarding pass. You will fly about 8000 miles on your way to US (one way). Thats 8000 miles added to  your Frequent Flyer Account. After accumulating 25,000 in miles the account, you can get one round  trip ticket free within US with partner Airways in Jet (which is American Airlines).
+
+## How Much U.S. Dollars to Take? 
+
+How much money (in US Dollars) should I take with me to the USA? 
+
+How Much Money Do I Need?
+
+It is best to be a conservative.  
+
+You'll need two separate demand drafts (also called certified checks or bank checks).  The first should be made out to the University, written for the first semester fees + $500.  The second should be made out to you, and should cover living expenses for six months.  Figuring out your living expenses for six months may require a bit of research on your part. Consider  food costs, the price for laundering clothes, replenishing toiletries, the occasional fun outing with  friends, and other expenses. 
+
+- Texas, Florida -- About $400 per month  
+
+- New York, California -- About $600 per month 
+
+Some bank managers will not issue bank draft (demand drafts) in your name. If this is the case, get  your second draft made out to the University as well. You will be able to get a personal check from the  university.  
+
+Do Not: Carry tuition fees for the full year.  
+
+Do: Take just the right amount for the first semester (especially if you are taking money out of an 
+
+education loan). 
+
+## Travelers' Checks or Demand Draft? 
+
+The choice between these two options is entirely up to you, but it may be best to make that selection  depending on commission fees. If you have travelers' checks, you will be able to use them along the  way, but it is doubtful that you'll actually use them during travel.  
+
+If you need to use money during travel, $400 -- $1000 is sufficient.  
+
+Do not: Carry more than $1000 during travel.  
+
+Do not: Carry USD in large denominations  
+
+Do: Carry USD in small denominations (5, 10, and 20 dollar bills) 
+
+What if my demand draft amount is greater than my tuition fees? 
+
+For example: you've written your demand draft for $8000, and the fees only total to $7500. No worries  -- this is not an uncommon occurrence.  
+
+Do not: Panic. Once your bank draft is cleared and credited to the university account, they will refund  the money to you as a personal check.  
+
+Do: Contact the Bursar's Office of your university to resolve any questions you have about finances. 
+
+How to Transfer Money from India to USA 
+
+I have a balance of 15 lakhs in my Indian account. I am still in India and I need to transfer  it to USA. I can open US bank account only after going there. In this case, how can I  transfer money? Can I take a DD on my name, go to US, open an account and deposit the  DD in that account? 
+
+## Money Transfer -- India to USA 
+
+You have several different options for transferring money to the USA from your account in India: - Demand Draft (or Bank Check or Certified Bank Check)  
+
+- Traveler's Check  
+
+- Wire Transfer  
+
+- Carry Cash in Hand 
+
+The option you choose depends heavily upon how much you plan to take with to the US.  If you plan to take just the first semester fees and living expenses, then I would take 2 DD's with you. 1\. First Semester Fees in the name of the university  
+
+2\. Living Expense for 6 months to 1 year in your name.
+
+If you plan to transfer all the 15 Lakhs (about $30,000 USD), I suggest that you use a combination of  the above options: 
+
+1\. Take a DD for a smaller amount (approximately $5000)  
+
+2\. Use this DD to open a bank account once you've reached your campus.  3. Have your parents wire transfer the remaining money to your new account. 4\. You should also have USD in cash on hand (less than $1000) to utilize until your bank  account has been opened. 
+
+Taking the entire $30,000 in DD is a possibility, but I do not advise that you do that. It is a large hassle  and a great source of tensions, especially if you happen to lose the DD.  
+
+Travelers' Checks are not recommended for carry large amounts either.  
+
+For large amount, I would opt for DD, Cash and Wire Transfer.  
+
+Do you have additional questions about money transfer?  
+
+Also, if you have already decided how to carry the money, share your tips below. It will help other  students deciding about money transfer. 
+
+What Happens Right After Flight Lands in USA (Port of Entry)  
+
+Here is a quick overview of what happens right after you land in US Airport at Port of Entry. Port of Entry Procedures (Video) 
+
+- You will be given I-94 and Customs form to fill while in flight to USA - Your Flight will land in International Terminal  
+
+- Take your cabin items and belongings  
+
+- Step 1 -- Clear Immigration Check  
+
+- Have the Forms (I-94, Customs filled)  
+
+- Passport and I-20  
+
+- Wait in Queue for your turn.  
+
+- CBP (Customs and Border Protection) officer at Port of Entry will ask you few questions - He will stamp, I-20, Staple I-94 to Passport and stamp your customs form. - Collect your Checked-In Bags (you may have to get a baggage cart)  
+
+- Clear Customs (they might ask if you have any food items) 
+
+- Give the customs form and they will let you go to next destination.  
+
+- If Port of Entry is your final destination, then walk out and wait for pickup help - If you have connecting flight, check in you bags again to the next flight - Go to domestic terminal to board your next flight  
+
+- You may have to go through security check again. 
+
+Now, you are all set to reach final destinations. for example, you are in New York (JFK). I think  International Terminal is #3. After you walk out of customs, to your left side, you will see the  counter to check-in your bags to final destination. 
+
+Next, you will have to go to other terminal to catch the next flight (via AirTrain). So, when you check  the bags, ask the airline agent, which terminal you have to go to catch the connecting flight.  In my case, I had to go to Terminal 8. Took about 20 minutes to go from Terminal 3 to 8.  At Terminal 8, you will have to clear the security. Essentially when you walked out of Terminal 3, you are outside secured area. So, you will have to go through the security to get into Terminal 8 (or other  terminal).  
+
+Show your passport and boarding pass at security area, then go through the security check, then you are  inside the terminal area. Then find the gate number, and walk to your gate.  
+
+Gate number will be on the boarding pass. Also, check the Departure Monitor on the airport for right  time and gate number. Gate number could change. 
+
+## Long Security Queue 
+
+If you are getting late to the connecting flight and there can be long queue in security area. In such case, request the TSA security agent to get you in front of the queue.  
+
+Clear the security check. Walk to your gate and board the flight to final destination. 
+
+## Air Travel -- How to Avoid Jet Lag? When you are traveling for more than 20 hours to U.S. you stand a good chanceof begin caught by jet  lag.  
+
+Following tips will reduce your jet lagged time. 
+
+- Drink lots of water. Stretch your legs, arms, go for a walk in-flight. 
+
+- Avoid alcohol on the plane.  
+
+- Avoid caffeinated beverages as much as possible.  
+
+- Drink Orange juice and keep hydrated. 
+
+Based on your flight arrival time in U.S. adjust your sleeping time in the flight. 
+
+Suppose you are arriving between 6 am to Noon, make sure you don't sleep during your first  flight out of India (say India to Europe ). Since, you will be boarding your flight at mid-night  (mostly), it will be difficult, but worth the try.  
+
+Sleep well during your next flight from Europe to port of entry in U.S. After you reach your final  destination, don't go to bed. Try to stay awake till 8 pm. If you go to bed say around 3 PM or 4PM, for  sure, you will have jet lagged for few days. 
+
+## Cell Phone Buyinbg Guide -- Your First  Cell Phone in USA 
+
+Buying cell phones and cell phone plans in USA for first time visitor to USA is a challenging task.  There are several Cell Phone service providers with several plans and devices.  This cell phone buying guide will provide a brief overview about various cell phone plans, price and  phone for first time visitor to USA on F1, F2, B1, B2, L1 or any other USA visa. - Part 1 -- This Guide  
+
+ ### - Part 2 - Explain it To Me -- Free Cell Phones and Contracts 
+
+Before buying cell phone, you have to know about ![](https://lh5.googleusercontent.com/CazQk9gCLMk4ESlW3X3Ez7FfjPRX54ofMqq0vlE0tW0OFYA1GHYmjT9XLJ77hsSqBO3DoviVbR36_H9adGWITKvrQGMkXUNsBn_FSFFIxqmLYSk5QVsGeg1XqPDE2O0hrUy7C6W50IdBVrAAFOQWP8s)
+
+- Cell Phone Plans  
+
+- Cell Phone Handsets (device)  
+
+- Cell Phone -- Eligibility  
+
+- Contract Terms 
+
+Cell Phone Service Providers 
+
+- Major -- ATT, Verizon, T-Mobile and Sprint  
+
+- Minor -- US Cellular, Cricket, Virgin Mobile, etc 
+
+When I was shopping for cell phone for the first time, it was quite overwhelming. There are so many  plans, cell phone options and contract terms to navigate through.
+
+## Cell Phone Buying Guide 
+
+You need to understand 2 things before buying a cell phone. 
+
+- Cell Phone Plans  
+
+-Mobile Handsets (Devices) 
+
+Cell Phone Plans 
+
+Let's look at different types of cell phone plans. There are 2 types of Cell Phone Plans - Prepaid Plans  
+
+- Post Paid Plans  
+
+- Share Everything plan (Verizon) 
+
+Prepaid Cell Phone Plans 
+
+With Prepaid cell phone plans, there are 
+
+- No contract,  
+
+- No credit check  
+
+- No SSN  
+
+- Pay by the month, day, or minute. 
+
+Let's look at a Prepaid plan (GoPhone from ATT). You can buy prepaid plan by 3 simple steps 1\. Select a Plan  
+
+2\. Select a cell phone device  
+
+3\. Make Payment.  
+
+4\. Shop Online on In-Store. 
+
+## ATT Prepaid Plans 
+
+Following image has a sample list of phone listed on AT&T site. (check the site for full list of phones) 
+
+In the above picture, you can buy AT&T Z331 GoPhone for $18.99 + $25 monthly Prepaid plan.  Similar to AT&T, Verizon and other cell phone service providers have Prepaid plans.  
+
+If you plan to stay in USA for short-term, then Prepaid plans would be the best option. Post Paid Plan -- Share Everything 
+
+If you plan to stay in USA for longer period of time (F1 Visa, H1B Visa, L1 Visa, etc) you can buy Post 
+
+Paid Cell Phone plans.  
+
+There are 2 types of Post Paid plans 
+
+- Verizon -- Share everything  
+
+- ATT -- Traditional Post Paid plan 
+
+Verizon and AT&T are the 2 leading cell phone providers in USA (based on number of subscribers).  Verizon recently introduced Share Everything Plan ( new type of Post Paid cell phone plan). This plan  
+
+is not available at ATT (at this time of writing). 
+
+Verizon -- Share everything Plan 
+
+- Step 1 -- Pick Cell Phone Device ($199 for iPhone 4s 16Gb)  
+
+- Step 2 -- Pick the Shared plan 
+
+Verizon's Share Everything Post paid plan (above image) for iPhone 4s (16 GB) will cost you $100 per  month + Taxes when you select 2GB Data plan. You get unlimited talk time and unlimited text.  If you and your friend want to share the data, your monthly bill will look like 
+
+- $40 (phone 1) + $40 (phone 2) + $40 (data) = $120  
+
+- Your share after the split will be $60. 
+
+Initial investment to buy an iPhone 4S 16GB will be $199 + taxes per phone. 
+
+AT&T -- Post Paid plan 
+
+AT&T offers Individual and Family plan options for Post Paid Plans.  
+
+Following image shows Family plan (most likely F1 Visa students will be getting a family plan to save  money). 
+
+How much does it cost to get 2 lines with iPhone 4S with ATt&T? 
+
+- Monthly -- $60 + $20 (300 MB Data, Phone 1) + $20 (300 MB Data, Phone 2) = $100 - Share after split = $50 
+
+Comparing with Verizon, you will pay $10 less per month. But, with Verizon, you get unlimited Talk  time and Text.  
+
+You would have to decide if you want to pay $10 more for unlimited talk time and text or save $10 and  get AT&T. 
+
+Also, I saw AT&T is offering refurbished iPhone 4S for $149.  
+
+Above calculation should give you a brief overview about the cell phone plans, devices and cost per  month.  
+
+In addition to that, you have to learn about eligibility, credit check, coverage and usage requirements. Cell Phone Service Eligibility 
+
+Cell phone service providers will require SSN and decent Credit History buy a cell phone and service.  If you are coming to USA for the first time (F1 student visa) you may not qualify for cell phone  service without security deposit.  
+
+iPhone 45 16 GB costs $700 (or so). When you buy the phone with 2 year contract, you have to only  pay $199.  
+
+If you have SSN, without credit history, you might have to pay $500 in security deposit + $199 for the phone.  
+
+After you have established good payment history, your security deposit will be refunded (usually after 12 months).  
+
+You can buy a cell phone through seniors or relatives who already have a plan. Typically this is what happens with most F1 students who want to buy a new cell phone service. 
+
+Coverage 
+
+Make sure you get good coverage in the area where you live and within your apartment. Your college  seniors or ask your friends to learn about cell coverage.  
+
+In some instances, ATT might not work inside a building.  
+
+Also, you would have 14 days to return the phone, if you don;'t have good coverage in your apartment,  lab or other places where you spent most of your time. 
+
+How To Get Cell Phones for Free in  USA? 
+
+Question - Can you please explain how can we get cell phone in USA for free?  For folks who are coming to USA for the first time, refer to Cell Phone Buying Guide in USA.  You must have heard from your friends about free cell phone in USA and wondering how is it possible  to get cell phones for free in USA.
+
+Free Cell Phones in USA 
+
+In the US, cell phones are sold by the cell phone service providing networks.  Cell Phone Service Providers 
+
+- Major -- ATT, Verizon, T-Mobile and Sprint  
+
+- Minor -- Boost Mobile, US Cellular, Cricket, Virgin Mobile, etc 
+
+The network will set the base price for the cell phone and this base price is generally cheaper than the  original retail price set by the manufacturer.  
+
+In addition to base price, you will have to sign a contract for a fixed period (generally 2 years) during  which you will make monthly payments -- Post paid plan.  
+
+You can choose the monthly payment amount by selecting a plan that suits you. (as discussed in the  above post)  
+
+Monthly bills can be anywhere between $30 and $ 100 depending on your cell phone plan. Free iPhone Example -- AT&T 
+
+Looking at the following screenshot taken from AT&T iPhone cost (I have selected to show only free  iPhone) 
+
+As you can see iPhone 3GS is available for $0.01 or $0.99 with 2 years contract.  Cost of iPhone 4S 16GB(today) 
+
+- Refurbished -- $149  
+
+- New -- $199 
+
+Likewise you can find other cell phone for 1 cent or totally free. 
+
+What happens after 2 years contract? 
+
+After 2 years contract, you can get another cell phone with new 2 year contract or continue to use the same phone.  
+
+For instance, if you iPhone 4, purchased in September 2010. 2 Years contract will expire in September 2012.  
+
+If iPhone 5 comes out in October, you have following options 
+
+- Continue to use iPhone 4  
+
+- Buy iPhone 5 with new 2 year contract (sell iPhone 4) 
+
+You should be able to sell iPhone 4 for $150 to $250 when next iPhone comes out.  Now, you know how to get free cell phones in USA.
