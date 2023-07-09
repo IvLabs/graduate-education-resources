@@ -1,20 +1,20 @@
 # USA-TRAVEL-GUIDE
-| Dress/Clothes              |
-| -------------------------- |
-| Jeans                      | 4 | India |  |
-| T-Shirts                   | 10+ | India |  |
-| Shirt – Casual             | 4 | India | I like Tshirts more than shirts. So, less number of shirts. |
-| Shirt – Formal             | 2 | India |  |
-| Coat and Suit –  Formal    | 1 | India | Coat and Suit are expensive in U.S. compared to India |
-| Shorts/ 3/4ths             | 5 | India |  |
-| Pants                      | 4 | India | I don’t like to wear pantsJ. I will go with Jeans |
-| Belts                      | 2 | India | Leather is expensive in U.S. |
-| Formal Shoe                | 1 Pair | India |  |
-| Winter Wear                |  | U.S. | Don’t buy winter wear in India. Sweater, Jackets, are cheap  during sale. |
-| Leather Jacket             |  |  | Prefer winter Jacket over Leather. Jackets – $20 to $75 |
-| Sports Shoes +  Socks      | 1 Pair +  Few | U.S. | Nike, Adidas, Rebook.. are cheap. I got Adidas for $18; Socks  are very cheap. |
-| Sandals                    | 1 Pair | India | Its cheap here, but you will need it when you reach here. |
-| Wallet                     | 1 | India | Get new one before you come |
+| Dress/Clothes           |
+| ----------------------- |
+| Jeans                   | 4 | India |  |
+| T-Shirts                | 10+ | India |  |
+| Shirt – Casual          | 4 | India | I like Tshirts more than shirts. So, less number of shirts. |
+| Shirt – Formal          | 2 | India |  |
+| Coat and Suit –  Formal | 1 | India | Coat and Suit are expensive in U.S. compared to India |
+| Shorts/ 3/4ths          | 5 | India |  |
+| Pants                   | 4 | India | I don’t like to wear pantsJ. I will go with Jeans |
+| Belts                   | 2 | India | Leather is expensive in U.S. |
+| Formal Shoe             | 1 Pair | India |  |
+| Winter Wear             |  | U.S. | Don’t buy winter wear in India. Sweater, Jackets, are cheap  during sale. |
+| Leather Jacket          |  |  | Prefer winter Jacket over Leather. Jackets – $20 to $75 |
+| Sports Shoes +  Socks   | 1 Pair +  Few | U.S. | Nike, Adidas, Rebook.. are cheap. I got Adidas for $18; Socks  are very cheap. |
+| Sandals                 | 1 Pair | India | Its cheap here, but you will need it when you reach here. |
+| Wallet                  | 1 | India | Get new one before you come |
 | Personal Care              |
 | Hangers                    | No | U.S. | Don’t water your suitcase weight carrying hangers. You will get  13 Hangers for $1 form Walmart |
 |                            |
