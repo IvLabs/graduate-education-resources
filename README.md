@@ -1,43 +1,47 @@
 # USA-TRAVEL-GUIDE
 | Dress/Clothes           |
-| ----------------------- |
-| Jeans                   | 4 | India |  |
-| T-Shirts                | 10+ | India |  |
-| Shirt – Casual          | 4 | India | I like Tshirts more than shirts. So, less number of shirts. |
-| Shirt – Formal          | 2 | India |  |
-| Coat and Suit –  Formal | 1 | India | Coat and Suit are expensive in U.S. compared to India |
-| Shorts/ 3/4ths          | 5 | India |  |
-| Pants                   | 4 | India | I don’t like to wear pantsJ. I will go with Jeans |
-| Belts                   | 2 | India | Leather is expensive in U.S. |
-| Formal Shoe             | 1 Pair | India |  |
-| Winter Wear             |  | U.S. | Don’t buy winter wear in India. Sweater, Jackets, are cheap  during sale. |
-| Leather Jacket          |  |  | Prefer winter Jacket over Leather. Jackets – $20 to $75 |
-| Sports Shoes +  Socks   | 1 Pair +  Few | U.S. | Nike, Adidas, Rebook.. are cheap. I got Adidas for $18; Socks  are very cheap. |
-| Sandals                 | 1 Pair | India | Its cheap here, but you will need it when you reach here. |
-| Wallet                  | 1 | India | Get new one before you come |
+
+| Jeans                   | 4             | India |                                                                                |
+| ----------------------- | ------------- | ----- | ------------------------------------------------------------------------------ |
+| T-Shirts                | 10+           | India |                                                                                |
+| Shirt – Casual          | 4             | India | I like Tshirts more than shirts. So, less number of shirts.                    |
+| Shirt – Formal          | 2             | India |                                                                                |
+| Coat and Suit –  Formal | 1             | India | Coat and Suit are expensive in U.S. compared to India                          |
+| Shorts/ 3/4ths          | 5             | India |                                                                                |
+| Pants                   | 4             | India | I don’t like to wear pantsJ. I will go with Jeans                              |
+| Belts                   | 2             | India | Leather is expensive in U.S.                                                   |
+| Formal Shoe             | 1 Pair        | India |                                                                                |
+| Winter Wear             |               | U.S.  | Don’t buy winter wear in India. Sweater, Jackets, are cheap  during sale.      |
+| Leather Jacket          |               |       | Prefer winter Jacket over Leather. Jackets – $20 to $75                        |
+| Sports Shoes +  Socks   | 1 Pair +  Few | U.S.  | Nike, Adidas, Rebook.. are cheap. I got Adidas for $18; Socks  are very cheap. |
+| Sandals                 | 1 Pair        | India | Its cheap here, but you will need it when you reach here.                      |
+| Wallet                  | 1             | India | Get new one before you come                                                    |
+
 | Personal Care              |
-| Hangers                    | No | U.S. | Don’t water your suitcase weight carrying hangers. You will get  13 Hangers for $1 form Walmart |
+
+| Hangers                    | No             | U.S.  | Don’t water your suitcase weight carrying hangers. You will get  13 Hangers for $1 form Walmart |
+| -------------------------- | -------------- | ----- | ----------------------------------------------------------------------------------------------- |
 |                            |
-| Tooth Brush                | 2 | India |  |
-| Shaving Kit                | 1 | India | Bring what you are using now |
-| After Shave                | 1 | India | Bring what you are using now, if not buy in US |
-| Soap                       | 1 | U.S. | One soap to use first few days. |
-| Wash Detergent             |  | U.S. | Please don’t carry detergents from India. You are wasting your  space/weight. |
-| Combs                      | 1 or 2 | India |  |
+| Tooth Brush                | 2              | India |                                                                                                 |
+| Shaving Kit                | 1              | India | Bring what you are using now                                                                    |
+| After Shave                | 1              | India | Bring what you are using now, if not buy in US                                                  |
+| Soap                       | 1              | U.S.  | One soap to use first few days.                                                                 |
+| Wash Detergent             |                | U.S.  | Please don’t carry detergents from India. You are wasting your  space/weight.                   |
+| Combs                      | 1 or 2         | India |                                                                                                 |
 | Hair Oil                   | 50 to  
 
-200ml | India | Pack it well, so it doesn’t leak. |
-| Nail cutter                | 1 | India | Pack in Check-In Bag |
-| Small scissors             | 1 | India | Pack in Check-In Bag |
+200ml | India | Pack it well, so it doesn’t leak.                                                               |
+| Nail cutter                | 1              | India | Pack in Check-In Bag                                                                            |
+| Small scissors             | 1              | India | Pack in Check-In Bag                                                                            |
 | Safety pins.  
 
-Sewing kit | No |  | I have never used it nor my friends. |
-| Shampoo                    | No | USA | Get it in USA. Avoid any cosmetics product. Cheap and saves  weight. |
-| Towels                     | 2-3 | India | 1 – Thick cotton towels. 2 towels light in weight. |
-| Napkin/Hand  Kerchiefs     | 6-10 | India | Depending on your need. |
+Sewing kit | No             |       | I have never used it nor my friends.                                                            |
+| Shampoo                    | No             | USA   | Get it in USA. Avoid any cosmetics product. Cheap and saves  weight.                            |
+| Towels                     | 2-3            | India | 1 – Thick cotton towels. 2 towels light in weight.                                              |
+| Napkin/Hand  Kerchiefs     | 6-10           | India | Depending on your need.                                                                         |
 | Perfume –  
 
-Deodrant      | 1 | India | You can get it here for cheap after you run out. |
+Deodrant      | 1              | India | You can get it here for cheap after you run out.                                                |
 
 | Mirror                                | Yes                | India     | You can carry small mirror.                                                                                                  |
 | ------------------------------------- | ------------------ | --------- | ---------------------------------------------------------------------------------------------------------------------------- |
