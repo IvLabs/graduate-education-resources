@@ -38,7 +38,6 @@
 | Napkin/Hand  Kerchiefs     | 6-10           | India | Depending on your need.                                                                         |
 | Perfume – Deodrant         | 1              | India | You can get it here for cheap after you run out.                                                |
 | Tooth Paste                |1               | India | Get small one. Same Colgate, Close-up is available, but it will  taste different.               |
-
 | Mirror                                | Yes                | India     | You can carry small mirror.                                                                                                  |
 | Razor Blades                          | Few                | USA       | Shaving kit is cheap.                                                                                                        |
 | Blanket                               | 2                  | India     | 1 – Bed Spread. Get Comforter or Plush blankets in U.S. ($20)                                                                |
@@ -52,7 +51,7 @@
 | Pen, Pencil, Glue, Cello  Tape..      | Few                |           | Get some pen, pencil, highlighter, but you can find them in  plenty here.                                                    |
 | Calculator                            | No                 |           | Scientific calculator looks different in US.                                                                                 |
 
-| Kitchen/Cooking                       |                    |  |
+| Kitchen/Cooking                       |                    |  | |
 | -------------------------- | -------------- | ----- | ----------------------------------------------------------------------------------------------- |
 | Pressure Cooker                       | 1 (3 to 7  liters) | India     | Don’t forget to bring pressure cooker, also get extra weight,  valve.                                                        |
 | Indian Masala/Spices                  |                    | India     | Try to get as much as possible. Masala items are available, but  doesn’t give same taste as moms food.                       |
