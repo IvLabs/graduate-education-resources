@@ -1,5 +1,5 @@
 # USA-TRAVEL-GUIDE
-| Dress/Clothes           |
+| **Dress/Clothes           |
 
 | Item Name               |Qty.           |       |                                                                                |
 | ----------------------- | ------------- | ----- | ------------------------------------------------------------------------------ |
@@ -18,7 +18,7 @@
 | Sandals                 | 1 Pair        | India | Its cheap here, but you will need it when you reach here.                      |
 | Wallet                  | 1             | India | Get new one before you come                                                    |
 
-| Personal Care              |
+| **Personal Care              |
 
 | Item Name                  |Qty.            |       |                                                                                                 |
 | -------------------------- | -------------- | ----- | ----------------------------------------------------------------------------------------------- |
@@ -51,7 +51,7 @@
 | Pen, Pencil, Glue, Cello  Tape..      | Few                |           | Get some pen, pencil, highlighter, but you can find them in  plenty here.                                                    |
 | Calculator                            | No                 |           | Scientific calculator looks different in US.                                                                                 |
 
-| Kitchen/Cooking                       |                    |  | |
+| **Kitchen/Cooking                       |                    |  | |
 | -------------------------- | -------------- | ----- | ----------------------------------------------------------------------------------------------- |
 | Pressure Cooker                       | 1 (3 to 7  liters) | India     | Don’t forget to bring pressure cooker, also get extra weight,  valve.                                                        |
 | Indian Masala/Spices                  |                    | India     | Try to get as much as possible. Masala items are available, but  doesn’t give same taste as moms food.                       |
