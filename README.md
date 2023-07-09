@@ -18,7 +18,7 @@
 | Sandals                 | 1 Pair        | India | Its cheap here, but you will need it when you reach here.                      |
 | Wallet                  | 1             | India | Get new one before you come                                                    |
 
-## **Personal Care              
+## Personal Care              
 
 | Item Name                  |Qty.            |       |                                                                                                 |
 | -------------------------- | -------------- | ----- | ----------------------------------------------------------------------------------------------- |
