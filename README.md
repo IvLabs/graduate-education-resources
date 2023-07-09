@@ -1,8 +1,9 @@
 # USA-TRAVEL-GUIDE
 | Dress/Clothes           |
 
-| Jeans                   | 4             | India |                                                                                |
+| Item Name                 |Qty.             |  |                                                                                |
 | ----------------------- | ------------- | ----- | ------------------------------------------------------------------------------ |
+| Jeans                   | 4             | India |  
 | T-Shirts                | 10+           | India |                                                                                |
 | Shirt – Casual          | 4             | India | I like Tshirts more than shirts. So, less number of shirts.                    |
 | Shirt – Formal          | 2             | India |                                                                                |
