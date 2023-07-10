@@ -4,4 +4,4 @@ Travelling to a new country and living there by oneself is hard. Hope this guide
 
 ## Guides by Country
 
-1. [United States](Unites-States)
+1. [United States](United-States.md)
