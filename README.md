@@ -9,6 +9,7 @@ Here you will find all the information and online materials which are being used
 ## List of Subtopics
 Please click on following link to see the more info about the specific topic
 
+- [Application Guide](application-guide)
 - [Travel Guides](travel-guides)
 
 
