@@ -6,15 +6,5 @@
 Initiative by [IvLabs](http://www.ivlabs.in/) to share information abour graduate education.
 Here you will find all the information and online materials which are being used by IvLabs members while applying for graduate education as well as a guide to surviving it. These resources have been carefully handpicked to provide the best knowledge. If you like the repo, please star. This motivates us to update the repo frequently.
 
-## List of Subtopics
-Please click on following link to see the more info about the specific topic
-
-- [Application Guide](application-guide)
-- [Travel Guides](travel-guides)
-
-
-## Guidelines for contributing
-Please read [CONTRIBUTING.md](CONTRIBUTING.md) for contribution guidelines. Contributions will not be accepted if they dont follow these guidelines
-
-## Maintainers
-- [Karan Pandya](http://visionbeast.github.io/)
+## Updating Mainpage content
+Please update mainpage in index.markdown
