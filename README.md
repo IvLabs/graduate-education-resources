@@ -1,5 +1,5 @@
 
-# Resources and Roadmaps for Persuing Graduate Education
+# Resources and Roadmaps for Pursuing Graduate Education
 ![http://ivlabs.in/](ivlabs-black.png)
 [![Maintenance](https://img.shields.io/badge/Maintained%3F-yes-green.svg)](https://github.com/IvLabs/graduate-education-resources/graphs/contributors) [![GitHub license](https://img.shields.io/github/license/Naereen/StrapDown.js.svg)](https://github.com/IvLabs/graduate-education-resources/blob/master/LICENSE.md) [![GitHub stars](https://img.shields.io/github/stars/IvLabs/graduate-education-resources?style=social)](https://github.com/IvLabs/graduate-education-resources/stargazers)
 
